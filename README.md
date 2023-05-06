@@ -1,3 +1,3 @@
 Happy Birthday
 Untuk kekasih ku
-Lintang putri ragi pramesty 🍑🍑🍑
+Lintang putri ragil pramesty 🍑🍑🍑
